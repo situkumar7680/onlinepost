@@ -1,4 +1,4 @@
-Paid Guest Posting Sites List
+Paid Guest Posting Sites List: A Complete Guide
 =============================
 
 .. toctree::
